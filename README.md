@@ -1,4 +1,4 @@
-![](⋆·˚ ༘ _🔭.jpg)
+![](selfselfself.png)
 
 ## hey, i'm ohms
 
